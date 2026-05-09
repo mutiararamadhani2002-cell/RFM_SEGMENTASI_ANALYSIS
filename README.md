@@ -116,7 +116,7 @@ The two frameworks are combined to create **detailed customer personality profil
 
 ## 📎 Presentation
 
-📊 (https://www.canva.com/design/DAHDV49E1fw/ntrX9ZL1-_uSJ4bw4o4i6g/edit)
+📊 (https://canva.link/bu7rcgfdxu3o9ac)
 
 ---
 
