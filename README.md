@@ -138,7 +138,7 @@ This project was completed as a group assignment at Purwadhika Digital Technolog
 
 **MUTIARA AYU ALZAHRA RAMADHANI**
 
-👔(https://www.linkedin.com/in/mutiara-ayu-1a343528).
+👔 (https://www.linkedin.com/in/mutiara-ayu-1a343528).
 
 ---
 
