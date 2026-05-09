@@ -137,7 +137,7 @@ The two frameworks are combined to create **detailed customer personality profil
 This project was completed as a group assignment at Purwadhika Digital Technology School.
 
 **MUTIARA AYU ALZAHRA RAMADHANI**
-[![LinkedIn](https://www.linkedin.com/in/mutiara-ayu-1a343528).
+(https://www.linkedin.com/in/mutiara-ayu-1a343528).
 
 ---
 
